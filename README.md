@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ExtraZiadeh
+- 👋 Hi, I’m ExtraZiadeh
 - 👀 I’m interested in Everything
 - 🌱 I’m currently learning a little bit of everything
 - 💞️ I’m looking to collaborate on everything
